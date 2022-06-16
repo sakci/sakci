@@ -8,4 +8,4 @@ I am a gaming enthusiast who is competent in web and technology, perceptive and 
 <br>
 **LINKEDIN:** https://linkedin.com/in/sakci
 <br>
-**DISCORD:** [alp#5680](https://discord.com/users/691598380148981830/)
+**DISCORD:** [alp#7777](https://discord.com/users/691598380148981830/)
