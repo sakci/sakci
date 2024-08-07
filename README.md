@@ -4,8 +4,6 @@ I am a gaming enthusiast who is competent in web and technology, perceptive and 
 
 **E-MAIL:** sakci@protonmail.com
 <br>
-**WEBSITE:** https://sakci.me
-<br>
 **LINKEDIN:** https://linkedin.com/in/sakci
 <br>
 **DISCORD:** [alp7x](https://discord.com/users/691598380148981830/)
